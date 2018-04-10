@@ -2,3 +2,5 @@
 segunda guia de died - UNT FRSF
 
 Creado el readme exitosamente :+1:
+
+Hola papu, todo tranca?
